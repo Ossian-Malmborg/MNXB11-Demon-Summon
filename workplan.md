@@ -1,0 +1,1 @@
+The first step to summoning a demon is to draw a circle and a star in blood on the floor.
