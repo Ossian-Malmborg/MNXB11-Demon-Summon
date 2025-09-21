@@ -1,0 +1,1 @@
+The second step to summoning a demon is bringing a vessel to the middle of the blood star
