@@ -4,3 +4,5 @@ The second step to summoning a demon is to place candles at the tips of the star
 
 The third step to summoning a demon is bringing a vessel to the middle of the blood star.
 
+The fourth step to summoning a demon is to sing a special song.
+
