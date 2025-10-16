@@ -4,7 +4,7 @@
 
 The third step to summoning a demon is bringing a vessel to the middle of the blood star.
 
-4.
+The fourth step to summoning a demon is to sing a special song.
 
 The fifth and final step is to offer the blood to the vessel.
 
